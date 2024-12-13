@@ -1,1 +1,1 @@
-Public Jujutsu Infinite Script
+Exidium | Public Jujutsu Infinite Script
